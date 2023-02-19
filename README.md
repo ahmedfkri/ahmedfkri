@@ -7,6 +7,8 @@
 
 - 📫 How to reach me **ahmedfkri@hotmail.com**
 
+<img align="right" width="400" src="https://media2.giphy.com/media/Lmy23L3RkJ0sEWokRN/giphy.webp?cid=ecf05e475b3iynat8vtwt387f16hty0bt36nkeawfwdotyt9&rid=giphy.webp&ct=g">
+
 <h3 align="left">Connect with me:</h3>
 <p align="left">
 <a href="https://twitter.com/chaoticartist__" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/twitter.svg" alt="chaoticartist__" height="30" width="40" /></a>
