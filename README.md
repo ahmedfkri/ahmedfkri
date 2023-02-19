@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **ahmedfkri@hotmail.com**
 
-<img align="right" width="400" src="https://media2.giphy.com/media/Lmy23L3RkJ0sEWokRN/giphy.webp?cid=ecf05e475b3iynat8vtwt387f16hty0bt36nkeawfwdotyt9&rid=giphy.webp&ct=g">
+<img align="right" width="400" src="https://thumbs.gfycat.com/CalculatingDirtyCockroach-max-1mb.gif">
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
