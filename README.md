@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **Android kotlin development**
 
-- 📫 How to reach me **ahmedfkri@hotmail.com**
+- 📫 How to reach me **devahmedfkri@gmail.com**
 
 <img align="right" width="400" src="https://thumbs.gfycat.com/CalculatingDirtyCockroach-max-1mb.gif">
 
