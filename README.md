@@ -3,7 +3,7 @@
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=ahmedfkri&label=Profile%20views&color=0e75b6&style=flat" alt="ahmedfkri" /> </p>
 
-- 🌱 I’m currently learning **Android kotlin development**
+- 🌱 I’m an **Android kotlin developer**
 
 - 📫 How to reach me **devahmedfkri@gmail.com**
 
